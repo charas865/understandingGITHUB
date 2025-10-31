@@ -1,0 +1,1 @@
+charas gnaja mere ko pyaara phukr mai shubah shaam raat or din 
